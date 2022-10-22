@@ -1,5 +1,5 @@
-嗨 这里是NoName3031
-hey this is NoName3031
+嗨 这里是NoName3031...也可以叫noah.
+hey this is NoName3031 also called noah.
 
 什么也不会,爱好是摸鱼,摸鱼以及摸鱼
 my skill is nothing. my hobby is mess around,mess around and mess around.
